@@ -1,1 +1,0 @@
-# alcinaburitizx-avaliacaoprocessual3tri
